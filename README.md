@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **fahimpathan835@gmai.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1fr8YUU7UiicDgdrG83vhMEia5g5sK547/view?usp=drive_link](https://drive.google.com/file/d/1fr8YUU7UiicDgdrG83vhMEia5g5sK547/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1fr8YUU7UiicDgdrG83vhMEia5g5sK547/view?usp=drive_link](https://drive.google.com/file/d/1d3UsmJfdd5e6d_pYYVmi2w-Oh97nis9i/view?usp=sharing)
 
 - ⚡ Fun fact **I am always funny**
 
